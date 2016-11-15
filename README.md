@@ -8,7 +8,7 @@
 
 ## Persönliche Daten 
 
-+ Name:	Roswita Kampmeier
++ Name:	Hertzi
 + Geburtsdaten:	16.02.1979
 + Mutter:	Marianne Kampmeier, geb. 22.04.57 
 + Beruf: Fachkrankenschwester für Psychotherapie
@@ -34,6 +34,7 @@
 * Winter 1996 - Sommer 1998 3 Schwimmgruppen von 5-14 Jahren trainiert
 * Praktikum Ergotherapiepraxis
 * Rhetorikseminar Januar 1998 in Wetzlar
+* Toiletten reinigen
 
 
 
@@ -45,5 +46,5 @@
 - Ook.
 
 ## Zu meiner Person
-Ich wurde in einer Fabrik hergestell und alle sagten immer ich sei dazu erschaffen worden *Toiletten* zu säubern, aber ich wusste es
+Ich wurde in einer Fabrik hergestellt und alle sagten immer ich sei dazu erschaffen worden *Toiletten* zu säubern, aber ich wusste es
 besser und hab mich umbenannt. Nun fahre ich rennen und bin meistens **vorletzter**, aber das wird noch...
