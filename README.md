@@ -4,6 +4,7 @@
 
 # Lebenslauf
 
+![Profilbild](https://github.com/Goukart/Einkaufsliste/blob/Branch_6/funny-cat-with-business-suit1.png "Roswita Kampmeier")
 
 ## Persönliche Daten 
 
