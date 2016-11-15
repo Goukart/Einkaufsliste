@@ -1,1 +1,3 @@
 # Einkaufsliste
+
+Ich wurde in einer Fabrik hergestell und alle sagten immer ich sei dazu erschaffen worden *Toiletten* zu säubern, aber ich wusste es besser und hab mich umbenannt. Nun fahre ich rennen und bin meistens **vorletzter**, aber das wird noch...
