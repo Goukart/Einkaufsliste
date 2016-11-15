@@ -7,7 +7,7 @@
 
 ## Persönliche Daten 
 
-+ Name:	Roswita Kampmeier
++ Name:	Hertzi
 + Geburtsdaten:	16.02.1979
 + Mutter:	Marianne Kampmeier, geb. 22.04.57 
 + Beruf: Fachkrankenschwester für Psychotherapie
